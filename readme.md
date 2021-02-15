@@ -1,0 +1,1 @@
+This is a recipe for a normally cooked food called french fries.Everybody loves this fast food so much that they never have enough of it!it does taste good but it's not supposed to be eaten everyday because if you eat it too much then it migth cause a problem!the main ingredient is potatoes and oil.So are you ready?
